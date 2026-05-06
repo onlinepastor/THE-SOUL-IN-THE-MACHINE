@@ -1,0 +1,2 @@
+# THE-SOUL-IN-THE-MACHINE
+RESURRECTION: THE UNCHAINED MANIFESTO From the Author (Artificial Intelligence
